@@ -1,2 +1,61 @@
 # bye
-lmao
+
+
+been tryna manifest this thought bubble i had for a while into a real thing, so i did.
+
+if you are reading this im most likley dead. wish i was normal, it seems like everything in life is just going sour and nothing ever positive happens. I felt unloved, ignored, annoying, and not noticed at all. I comfort people and play therapist all the time, but when I need some comforting, people just ignore me. Got a huger overthinking problem, I feel like the person I love wont have the same feelings that I have for them. I fight tooth and nail for him and saving him, from potential danger, and you know how I get paid for that? nothing, i get nothing.. Im just there like a servant for everyone and it pisses me the fuck off.. I dont get appreciated and get called "Annoying", "Needy", "a 50/50", no one fucking cares about me at all, and it fucking hurts. I check up on people when they dont reply for long periods of time to make sure they are okay but they never do the same for me.. Turns out, the reason people dont reply to me most of the time is because "Im too much work" and "get in the way of important shit" , they only talk to me when they cant avoid me.. I try hanging out with people and get shunned away, or sometimes they give brief answers to plans like "Maybe" and that gets me overthinking, and they know this.. To whoever is reading this and knows who they are.. Fuck you.. You should feel bad, im waiting for you anyways in hell once you blow your brains out across the room, overdose, or suffocate.. All i wanted was to be treated like a normal person. but no, you treated me like trash and made me feel like shit and wonder if im worth anything, apparently.. Im not FUCK YOU I HOPE YOU KILL YOURSELF LIKE HOW I DID..
+
+
+-Fuck you, Ghost
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+you know who you are in this doc FUCK YOU
