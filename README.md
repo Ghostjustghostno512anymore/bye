@@ -58,4 +58,3 @@ if you are reading this im most likley dead. wish i was normal, it seems like ev
 
 
 
-you know who you are in this doc FUCK YOU
